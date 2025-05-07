@@ -3,5 +3,5 @@
 
 - 📫 How to reach me **aaisha9878@gmail.com**
 
-- ⚡ Fun fact **Code with Tea**
+- ⚡ Fun fact **Code with Tea.**
 
